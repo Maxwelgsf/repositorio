@@ -1,0 +1,1 @@
+"Amanhã vai dar praia"
